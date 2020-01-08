@@ -1,3 +1,3 @@
 
 Pseudo code in python
-wolfman thinks we need a lot of pressure
+wolfman and the money  thinks we need a lot of pressure
